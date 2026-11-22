@@ -1,2 +1,1 @@
-
-how the fhcj do I upload photos on mobile
+IMG_20261121_182449.jpg
