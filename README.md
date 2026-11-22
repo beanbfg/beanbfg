@@ -1,1 +1,1 @@
-im so FUCKINGDONE HOW DO I UPLOAD IMAGES 
+![IMG_20261121_182449.jpg](https://github.com/user-attachments/assets/30d53c1a-0727-49d1-acef-144981ff1eef)
